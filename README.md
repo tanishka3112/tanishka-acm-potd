@@ -1,0 +1,1 @@
+![Screenshot](22.3.2026.png)
